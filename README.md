@@ -1,4 +1,4 @@
 # merci de ta gueule pt2
-# happy one motnh trizo national :)
+# happy one month trizo national :)
 # sur ce
 # bonne journée
